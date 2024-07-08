@@ -20,7 +20,6 @@ Project Presentation
 ![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0018](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/3129948b-e4b9-4aba-9425-384cafe103b4)
 ![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0019](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/1f313d59-ccd5-41eb-8b51-67db0df4ecf5)
 ![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0020](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/ec56b010-db88-4c80-ac5c-4d442253f199)
-![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0021](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/d7550b2f-5bbc-4f9d-a0c2-86fd4c1f02aa)
 ![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0022](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/5265b10c-80a0-490a-bc0e-8c571ac37eac)
 ![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0023](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/11425cdb-c0ac-49ab-8c35-971919c63909)
 ![MULTIBIT HAND DRILLING MACHINE  PRESENTATION_page-0024](https://github.com/Peramunage-Vihan/Multibit_handrilling_machine/assets/136991326/0de73c24-ec20-4150-bbd2-8cef7d531fbe)
